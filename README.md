@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Abarhand
+- 👀 major in Electrical engineering and its automation
